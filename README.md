@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hafizhhardian
+- 👋 Hi, I’m @MR_Hatetastic
 - 👀 I’m interested in Motosports,Football & Tech
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
